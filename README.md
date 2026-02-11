@@ -1,5 +1,3 @@
-# Strategic-BI-Portfolio
-
 # Alan David Trejo Salvador  
 ## Strategic Business Intelligence & Governance
 
