@@ -3,7 +3,7 @@
 # Alan David Trejo Salvador  
 ## Strategic Business Intelligence & Governance
 
-Economista con más de 9 años de experiencia en Gobierno Corporativo, Planeación Estratégica y Gestión de Proyectos.  
+Economista con 11 años de experiencia en Gobierno Corporativo, Planeación Estratégica y Gestión de Proyectos.  
 Especializado en transformar datos en herramientas de toma de decisiones para niveles directivos y consejos de administración.
 
 ---
